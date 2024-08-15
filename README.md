@@ -15,6 +15,7 @@ Na StartGoogle, oferecemos serviços especializados de vendas de backlinks. Noss
 ## Por que escolher a StartGoogle?
 
 Aumente a visibilidade do seu site e atraia mais clientes com nossos serviços comprovados de backlinks.
+Melhor plataforma para [comprar backlinks](https://startgoogle.com)
 
 ## Contato
 
